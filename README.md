@@ -1,0 +1,1 @@
+# IS-42_INDEPENDENT-LitvinkoKaryna-FIOT-2025
